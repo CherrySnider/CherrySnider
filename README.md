@@ -2,7 +2,7 @@
 - 👀 I’m interested in writing
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on writing light novel
-- 📫 How to reach me @cherry_snide4
+- 📫 How to reach me ig. @cherry_snide4
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm fall in Love
 
